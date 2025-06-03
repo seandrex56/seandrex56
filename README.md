@@ -12,6 +12,7 @@ You can click the Preview link to take a look at your changes.
 --->
 Hi guys this is Free  SOFTWARE if you want to buy or Donate TELEGRAM CONTACT @exwurdioq
 This is my Address to BTC : 1JuSYPrKJbHte7SSkprzZkSfoogVibbCVb
-And send me the screenshot in Telegram i send you Premium 1month BRUTE FORCE 
+And send me the screenshot in Telegram i send you Premium 1month BRUTE FORCE 150 USD for 1 Month This is not free 
 
 If you don't believe in my software, then don't buy it. But if you do believe in it, go ahead and make a purchase — just send 50% once you find a wallet with a balance. 
+Warning! THis is for educational porposes. But the original SOFTWARE contact me in TElegram But before you buy read the discription.

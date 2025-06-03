@@ -16,3 +16,4 @@ And send me the screenshot in Telegram i send you Premium 1month BRUTE FORCE 150
 
 If you don't believe in my software, then don't buy it. But if you do believe in it, go ahead and make a purchase — just send 50% once you find a wallet with a balance. 
 Warning! THis is for educational porposes. But the original SOFTWARE contact me in TElegram But before you buy read the discription.
+Key in EXE file is seandrex454567
